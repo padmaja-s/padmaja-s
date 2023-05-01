@@ -4,3 +4,5 @@ About me:
 [LinkedIn](https://www.linkedin.com/in/padmaja-senapati/)
 
 [Scrum Master Certificate from Scrum.org](https://www.scrum.org/certificates/954754)
+
+[Email](padmaja.senapati@gmail.com)
