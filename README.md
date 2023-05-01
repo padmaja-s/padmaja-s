@@ -1,4 +1,4 @@
-About me:
+**About me:**
 8+ years of work experience in the IT industry with specialization in Program manager, Project manager, Software Engineer, Data Analyst.
 
 [LinkedIn](https://www.linkedin.com/in/padmaja-senapati/)
