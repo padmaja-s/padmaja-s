@@ -1,6 +1,6 @@
 **About me:**
 
-8+ years of work experience in the IT industry with specialization in Program manager, Project manager, Software Engineer, Data Analyst.
+8+ years of work experience in the IT industry with specialization in Program manager, Software Engineer, QA.
 
 [LinkedIn](https://www.linkedin.com/in/padmaja-senapati/)
 
